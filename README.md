@@ -9,7 +9,7 @@
 
 |TEAMS|CONTACTER|LEADER|MEMBERS|MONTHLY THEME|
 |:-:|:-|:-|:-|:-|
-|甲| gezihuzi(*9500**90) | B1nGzl(50*1*10)|B1nGzl(50*1*10) Norman(9703797) HSHtime(7*7**3*9*) gezihuzi(*9500**90) myhloli(***90*9*9) unionrock(101*5**010) he15his(3*99*37*1)        |not yet|
+|甲| gezihuzi(*9500**90) | B1nGzl(50*1*10)|B1nGzl(50*1*10) Norman(9703797) HSHtime(7*7**3*9*) gezihuzi(*9500**90) myhloli(***90*9*9) unionrock(101*5**010) he15his(3*99*37*1) 凌迟(1021320064)       |not yet|
 |乙|  太阳（**7*001*3  	 |song(15*505*30*) |song(15*505*30*) Ouroboros(**5*77*0) 夏天吃雪糕(9*7*3*3*0) 太阳（**7*001*3）理查德（110*00**）小憨（519***07*）blackcore（10*017**0）|not yet|
 |丙|  liuswear（7***3***5）| 布兜儿(5*7***50*)|布兜儿(5*7***50*) 舜生(*03515335*) AloneMonkey(**71***33) liuswear（7***3***5）madmark（53019917）kiba（5***3**1*）chen（5**70*5**）|not yet|
 |丁| Bob（*5*997*73）  	 |Kuare™(3*05795**)|Kuare™(3*05795**) ImRed(*9**5753*) NONE(5*9****03) Bob（*5*997*73）no errors_joyf（*35**19**）floyd（**5*00*3）srh（*9*33*059）| not yet  |
